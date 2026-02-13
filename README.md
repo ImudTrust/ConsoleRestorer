@@ -1,0 +1,1 @@
+ConsoleRestorer is a mod that will remove all the blocked websites. So if your to lazy to remove the blocked websites your self this mod will remove it for you. So you can get trolled by console admins. STAY CONSOLE LOVERS :c
